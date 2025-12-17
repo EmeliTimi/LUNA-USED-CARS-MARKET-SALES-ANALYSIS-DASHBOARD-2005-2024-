@@ -244,9 +244,8 @@ Gradually expand offerings in hybrid and electric vehicles for future demand
 
 
 
+<img width="1297" height="571" alt="EMELI TIMI LUNA" src="https://github.com/user-attachments/assets/7d74584e-df55-4c8a-9d66-c5a43c4ac6ec" />
 
-
-<img width="1298" height="572" alt="LUNA DASHBOARD" src="https://github.com/user-attachments/assets/2cb2d238-df52-4fa3-bf1f-409e6cb1cee0" />
 
 
 
